@@ -1,4 +1,4 @@
-# Hi 👋, I'm Saptarshi Mukherjee Science_xii_B
+# Hi 👋, I'm Saptarshi Mukherjee
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Sappymukherjee214&label=Profile views&color=0e75b6&style=flat" alt="Sappymukherjee214" /> </p>
 
